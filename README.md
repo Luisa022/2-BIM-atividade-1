@@ -1,1 +1,0 @@
-# 2-BIM-atividade-1
